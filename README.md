@@ -1,4 +1,4 @@
-### Hi there 👋
+### Experienced IT and operations specialist, driven by results, with a solid track record in overseeing small-scale departmental projects and contributing to larger-scale initiatives. Recent focus in public utilities and private tech support, showcasing expertise in data analysis, effective customer communication, process enforcement, and solution recommendations. Proficient in utilizing financial and project management tools.
 
 <!--
 **Mreg96/mreg96** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
